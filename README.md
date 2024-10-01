@@ -7,3 +7,6 @@ My name is Taylor Mathieu, and I am currently a student enrolled at SAIT taking 
 
 -👯 I’m looking to collaborate on any group projects so that I may get as much practice and acquire as much knowledge as possible.
 
+-🤔 I am looking to learn as much as I possibly can and learn how to use my knowldge for my most efficient performance.
+
+
